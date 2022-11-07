@@ -1,1 +1,1 @@
-![](https://gateway.pinata.cloud/ipfs/QmRCz42XxuekvgyzZycCkWHnLQjsDNZhPuVSN1EXnt9jWQ)
+![](https://kicksdigitalmarketing.com/wp-content/uploads/2019/09/error-404-blog.gif)
